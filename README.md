@@ -1,0 +1,2 @@
+# studying
+Repositório para estudos
